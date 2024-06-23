@@ -1,1 +1,1 @@
-# adobe-crack-2024
+# adobe photoshop crack 2024
